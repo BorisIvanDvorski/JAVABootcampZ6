@@ -1,0 +1,1 @@
+HiveTech JAVA Bootcamp zadatak s 6. predavanja
